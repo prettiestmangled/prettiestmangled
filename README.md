@@ -1,10 +1,22 @@
 <div align="center">
-  <img height="200" src="https://i.postimg.cc/13G2PN46/ae776e01548a58666d26d865d6d54114.gif"  />
+  <img height="200" src="https://i.postimg.cc/x8HdVvW6/Untitled94-20260214110306.png"  />
 </div>
 
 ###
 
-<p align="center">lily / trixie / mangle   ࣪˖ ִ𐙚 <br>she/they</p>
+<div align="center">
+  <img height="60" src="https://i.postimg.cc/qvrxYQ9G/glitter-text-(25).gif"  />
+</div>
+
+###
+
+<div align="center">
+  <img height="30" src="https://i.postimg.cc/W1ZwYCWp/13b68e9f.gif"  />
+</div>
+
+###
+
+<p align="center">૮₍'˶• . •⑅₎ა she/they 🌸♫彡<br>ヽ🎀 read strawpages/carrd!!! ^_^<br>౨ৎ ⋆ ｡˚ 💌⸝⸝<br>🍰 living dead girl . beautiful <br>despite being torn apart 🩰</p>
 
 ###
 
